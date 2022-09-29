@@ -1,1 +1,1 @@
-# infe_2022_konovalova
+# infa_2022_konovalova
